@@ -1,1 +1,1 @@
-# GUNAKRUTHIK.github.io
+# GUNAKRUTHIK.io
